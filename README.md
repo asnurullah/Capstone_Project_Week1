@@ -1,1 +1,1 @@
-# Capstone_Project_Week1
+# The Battle of Neighborhoods (Week 1): Business Proposal
